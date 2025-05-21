@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Lather5207
+- 👀 I’m interested in computers
+- 🌱 I’m currently learning computer things
+- 💞️ I’m looking to collaborate on code
+- 📫 How to reach me: for now, please don't
+- 😄 Pronouns: thy/thou
+- ⚡ Fun fact: I don't know any fun fact
